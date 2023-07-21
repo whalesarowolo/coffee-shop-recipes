@@ -8,6 +8,7 @@
 - 1 shot Espresso Roast
 - 1 cup 2% milk
 - Whipped cream
+- Whisk with a egg whisker and shake until even
 
 ## How to make White Chocolate Mocha​
 
